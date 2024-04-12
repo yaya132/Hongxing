@@ -1,6 +1,6 @@
 ## Hongxing
 
-最新地址：[红杏](https://tzdaohang.com/sites/363.html)
+最新地址：[红杏](https://hx666.info/#/register?code=JVe7etFj)
 
 ## 简介
 
